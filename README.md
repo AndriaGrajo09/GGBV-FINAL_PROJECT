@@ -1,1 +1,3 @@
 This is the final project of GRAJO ANDRIA LYN, GUDAO JENNIFER, BON SHARLENE, AND VILLASIS ELYSA MAE. THANK YOU!
+![VITE](https://github.com/AndriaGrajo09/GGBV-FINAL_PROJECT/assets/96286348/283ed357-f0ba-489f-af35-57d37ab9d220)
+
